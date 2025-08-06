@@ -1,2 +1,2 @@
 Team Collaboration Notes
-- Meeting every Monday at 10 AM 
+- Meeting every Tuesday at 10 AM 
